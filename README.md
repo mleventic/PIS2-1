@@ -1,1 +1,2 @@
 Projektiranje informacijskih sustava
+bla bla blaaaaaaaaaaaaa
