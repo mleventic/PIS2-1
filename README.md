@@ -1,2 +1,2 @@
-Projektiranje informacijskih sustava
+Projektiranje antonija informacijskih sustava
 bla bla blaaaaaaaaaaaaa
